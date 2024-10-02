@@ -25,7 +25,7 @@ i don't have the best memory. sorry if i forget you. remind me!
 ♡ spider-man, fantastic four, x-men, new mutants, champions, nova 
 
 <p align="center">
-☆ spideytorch, suereed, katyana, roguegambit & jeanclops r my lovez...
+☆ spideytorch, suereed, katyana, roguegambit & jeanscott r my lovez...
 
 <p align="center">
 all of my favorite pairings are sapphic to me, i might call them lesbians
