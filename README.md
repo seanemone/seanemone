@@ -1,4 +1,5 @@
 <p align="center">
+your honor, im not the same person i was last week. im a changed man!
 <p align="center">
 quentinㅤ⚢ㅤthey / them & he because ill never be him
 
@@ -17,7 +18,6 @@ w2i, usually offtab. capeshit enjoyer
 <p align="center">
 no set dni. free blocker. id rather not hang around anyone under 16
 <p align="center">
-
 
 
 <p align="center">
