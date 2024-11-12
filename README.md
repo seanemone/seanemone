@@ -1,5 +1,5 @@
 <p align="center">
-your honor, im not the same person i was an hour ago. im a changed man!
+your honor, whatever i did, in my defense, im not the same person i was an hour ago
 <p align="center">
 quentinㅤ⚢ㅤthey / them & he because ill never be him
 
