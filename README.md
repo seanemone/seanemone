@@ -2,7 +2,7 @@
 <img align="center" width="480" src="https://files.catbox.moe/v92k3v.webp" alt="...">
 
 <p align="center">
-isaacㅤorㅤserineㅤ⚢ㅤthey / them & he because ill never be him
+ramonaㅤorㅤserineㅤ⚢ㅤthey / them & he because ill never be him
 
 <p align="center">
 <p align="center">
