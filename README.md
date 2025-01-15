@@ -1,18 +1,3 @@
-<p align="center">
-amir. they/he
-<p align="center">
-<p align="center">
-w2i, ask for discord
-<p align="center">
-   ⇖ ㅤㅤ⇧  ㅤㅤ⇗
-  <p align="center">
- ⇦ ㅤㅤim with stupid ㅤㅤ⇨
-<p align="center">
-   ⇙ ㅤㅤ⇩  ㅤㅤ⇘
-<p align="center">
-<p align="center">
-no set dni. free blocker. id rather not hang out with anyone under 16
-<p align="center">
+bruhhhhhhhhh bhruh look at my lawyer dawg im going to jail
 
-
-<p align="center">
+![](https://i.pinimg.com/originals/31/30/14/3130140512482f22e11379d6262b2801.gif)
